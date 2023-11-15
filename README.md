@@ -1,2 +1,12 @@
 # Backup-Messages-in-Realtime
-To Prevent &amp; Record and Save EVIDENCE of Abuse! https://www.quora.com/Does-deleting-a-Twitter-message-delete-it-on-both-sides https://www.quora.com/If-your-Twitter-is-deleted-not-deactivated-do-your-direct-messages-delete-on-both-sides https://www.quora.com/unanswered/Does-deactivating-Twitter-delete-DMs-on-both-sides
+
+# to record: Harassment & Abuse
+To Prevent &amp; Record and Save EVIDENCE of Abuse!
+
+sch: https://www.google.com/search?q=twitter+how+does+someone+get+messages+to+delete+on+your+end%3F
+
+Twitter:
+- https://twitter.com/Support/status/253611215190896642
+  - me: https://twitter.com/UniSocialNet/status/1724852159680827500
+
+https://www.quora.com/Does-deleting-a-Twitter-message-delete-it-on-both-sides https://www.quora.com/If-your-Twitter-is-deleted-not-deactivated-do-your-direct-messages-delete-on-both-sides https://www.quora.com/unanswered/Does-deactivating-Twitter-delete-DMs-on-both-sides
