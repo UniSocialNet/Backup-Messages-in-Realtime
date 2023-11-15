@@ -1,11 +1,13 @@
 # Backup-Messages-in-Realtime
 
 # to record: Harassment & Abuse
-To Prevent &amp; Record and Save EVIDENCE of Abuse!
+We Save EVERYTHING to Prevent &amp; Record and *Preserve EVIDENCE* of Abuse & Harassment!
+
+*Don't Delete it from the Victim, You fucking Idiots!*
 
 sch: https://www.google.com/search?q=twitter+how+does+someone+get+messages+to+delete+on+your+end%3F
 
-Twitter:
+## Twitter:
 - https://twitter.com/Support/status/253611215190896642
   - me: https://twitter.com/UniSocialNet/status/1724852159680827500
 
